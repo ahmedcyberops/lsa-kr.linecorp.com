@@ -1,0 +1,1 @@
+# lsa-kr.linecorp.com
